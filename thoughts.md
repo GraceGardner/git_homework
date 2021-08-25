@@ -4,4 +4,7 @@ Practice is key to becoming a good developer.
 
 Strategies:
 Use trello and google calendar as a tool to keep me on track.
-Taking Pom breaks during my homework and study time. 
+Taking Pom breaks during my homework and study time.
+
+Shoutout!
+Evan!
