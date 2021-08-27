@@ -8,3 +8,5 @@ Taking Pom breaks during my homework and study time.
 
 Shoutout!
 Evan!
+
+I have some thoughts
